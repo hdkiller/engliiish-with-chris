@@ -1,79 +1,50 @@
 ---
-title: "General English"
+title: "Master Everyday English with Confidence"
 date: 2024-01-01
 draft: false
 featured: true
 weight: 1
 ---
 
-Improve your everyday English skills with personalized lessons designed to boost your confidence and fluency in all aspects of the language.
+Are you struggling to express yourself confidently in English? You're not alone. Many learners feel frustrated when they can't communicate effectively in everyday situations. But there's good news - with the right guidance, you can overcome these challenges and become a confident English speaker.
 <!--more-->
 
 ![General English Lessons](/images/illustrations/reading.svg)
 
-# General English Lessons
+# Your Path to English Fluency
 
-Whether you're a beginner starting your English journey or an intermediate learner looking to improve, my personalized approach helps you achieve your language goals effectively.
+Imagine confidently ordering at restaurants, making friends from around the world, and expressing your thoughts clearly in any situation. As a native English speaker, I'll guide you through a proven learning journey that transforms your English abilities, ensuring you can communicate naturally and effectively in any everyday situation.
 
-## Comprehensive Learning
+## The Plan for Your Success
 
-### Core Language Skills
-- Speaking and pronunciation
-- Listening comprehension
-- Reading and vocabulary
-- Writing skills
-- Grammar fundamentals
+Our program is designed to build your confidence systematically. We focus on practical skills you can use immediately, helping you become comfortable using English in real-life situations.
 
-### Practical Focus Areas
-- Everyday conversation
-- Cultural understanding
-- Common expressions and idioms
-- Natural pronunciation
-- Real-life situations
+### Build Strong Communication Skills
 
-## Lesson Structure
+Communication success comes from mastering the fundamentals. Our lessons will help you speak naturally, understand native speakers easily, read with comprehension, and write clearly - all while building the confidence you need to use English in real situations.
 
-### Personalized Approach
-- Initial level assessment
-- Custom learning plan
-- Regular progress tracking
-- Flexible lesson content
-- Homework and practice materials
+### Develop Natural Language Abilities
 
-### Learning Methods
-- Interactive conversations
-- Reading exercises
-- Listening activities
-- Writing practice
-- Grammar explanations
-- Pronunciation drills
+Speaking English naturally is about more than just grammar rules. We'll help you master everyday expressions, understand cultural nuances, use proper pronunciation, and develop the instincts of a natural English speaker.
 
-## Perfect For
+## A Learning Experience Tailored to You
 
-- Beginners to advanced learners
-- Students and young professionals
-- Those planning to travel
-- Anyone wanting to improve their English
-- Learners seeking confidence in English
+We understand that every learner has unique needs and goals. Our flexible learning approach ensures you get exactly what you need to progress.
 
-## Why Choose My General English Lessons?
+### Convenient and Personalized
 
-- Native English speaker from England
-- Personalized attention
-- Flexible scheduling
-- Engaging learning materials
-- Regular progress assessments
-- Supportive learning environment
-- Both online and in-person options
+Choose between online one-to-one lessons or in-person sessions in Budapest. Schedule lessons at times that work for you and receive custom lesson plans that target your specific learning needs.
 
-## Lesson Format
+### Practice What Matters
 
-- One-to-one instruction
-- 60 or 90-minute sessions
-- Online or in-person in Budapest
-- Flexible scheduling
-- Materials provided
-- Regular homework assignments
-- Progress tracking
+Engage in real-world conversations, practice with authentic materials, and work on activities that reflect your daily English needs. Track your progress with regular assessments and reinforce your learning with targeted homework.
 
-Start your English learning journey today with a free consultation! Together, we'll create a learning plan that helps you achieve your language goals efficiently and enjoyably.
+## Who We Help
+
+Our General English lessons are perfect for beginners wanting to start their English journey, intermediate learners looking to break through plateaus, professionals needing better everyday English, students preparing for their future, and anyone wanting to communicate confidently in English.
+
+## Why Partner with Us?
+
+Work with a native English speaker who understands your learning journey, offers patient guidance, and provides constructive feedback. Enjoy flexible scheduling, focus on practical skills, monitor your progress, and learn in a supportive, encouraging environment.
+
+Don't let language barriers limit your life. Book your free consultation today and start your journey to English fluency.

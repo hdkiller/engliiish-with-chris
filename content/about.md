@@ -1,62 +1,54 @@
 ---
-title: 'About Chris White'
+title: 'Your Guide to English Mastery'
 date: 2024-01-01
 ---
 
-# Meet Your English Teacher in Budapest
+# The Right English Teacher Makes All the Difference
 
-As a native English speaker from England now based in Budapest, I bring both linguistic expertise and cultural understanding to my English teaching practice.
+Have you worked with English teachers who couldn't help you achieve the breakthrough you needed? Many students spend years studying English without seeing real progress. The problem often isn't you - it's the approach. As a native English speaker from England now based in Budapest, I offer a different path to English fluency.
 
 ![Chris White - English Teacher](/images/team/default.png)
 
-## My Background
+## Your Partner in English Success
 
-With a passion for education and cross-cultural communication, I've dedicated my career to helping students achieve their English language goals. My journey as an English teacher has allowed me to work with diverse students from various backgrounds, ages, and proficiency levels.
+Imagine having a guide who not only speaks perfect English but understands your learning journey and knows exactly how to help you succeed. That's what I bring to every lesson. My background in education and cross-cultural communication has equipped me with the tools to help you overcome language barriers and achieve your goals.
 
-## Teaching Philosophy
+## The Success Formula
 
-I believe that learning English should be:
+My teaching approach is built on proven principles that create real results:
 
-1. **Personalized** - Every student has unique needs, goals, and learning styles
-2. **Practical** - Focus on real-world language use and communication
-3. **Engaging** - Learning is most effective when it's enjoyable and relevant
-4. **Structured** - Clear progression with measurable improvements
-5. **Supportive** - Creating a comfortable environment where mistakes are learning opportunities
+1. **Personalized Learning Journey** - Your goals and challenges are unique, and your learning plan should be too
+2. **Real-World Focus** - Learn English you can actually use, not just textbook theory
+3. **Engaging Practice** - Stay motivated with relevant, interesting lessons
+4. **Clear Progress Path** - See measurable improvements that keep you moving forward
+5. **Supportive Environment** - Build confidence in a space where mistakes are stepping stones to success
 
-## Teaching Approach
+## How We'll Work Together
 
-My teaching method combines:
+Our partnership combines:
 
-- **Communicative Learning** - Emphasis on practical language use
-- **Structured Progress** - Clear learning paths and regular assessments
-- **Cultural Integration** - Understanding English in its cultural context
-- **Individual Attention** - Tailored feedback and support
-- **Modern Resources** - Up-to-date materials and teaching techniques
+- **Natural Communication** - Learn how English is really used by native speakers
+- **Strategic Progress** - Follow a clear path with regular milestones
+- **Cultural Understanding** - Master the subtle nuances that make English natural
+- **Personal Attention** - Get feedback that targets your specific needs
+- **Modern Techniques** - Benefit from the latest teaching methods
 
-## Location & Availability
+## Flexible Learning Options
 
-I offer lessons both:
-- Online via video call
-- In-person at my location in Budapest
+Choose the format that works best for you:
+- **Online Lessons** - Learn from anywhere via video call
+- **In-Person Sessions** - Meet at my convenient Budapest location
+- **Flexible Scheduling** - Find times that fit your busy life
 
-Flexible scheduling is available to accommodate your work or study commitments.
+## Your Investment in Success
 
-## Qualifications
-
-- Native English speaker from England
-- TEFL certification
-- Extensive experience teaching all levels
-- Specialized in Business English and IELTS preparation
-- Continuous professional development
-
-## Why Choose Me As Your English Teacher?
-
-- **Native Speaker Expertise** - Learn natural English pronunciation and expressions
-- **Personalized Attention** - Lessons tailored to your specific needs
+When you work with me, you get:
+- **Native Speaker Excellence** - Perfect pronunciation and natural expressions
+- **Proven Experience** - Years of helping students achieve breakthroughs
+- **Personalized Attention** - Lessons designed around your needs
 - **Flexible Schedule** - Convenient timing for busy professionals
-- **Proven Results** - Track record of student success
-- **Supportive Environment** - Comfortable atmosphere for learning
+- **Guaranteed Progress** - Track record of student success
 
-## Get Started
+## Start Your English Transformation
 
-Ready to improve your English? [Contact me](#contact) to schedule a free consultation where we can discuss your goals and create a personalized learning plan.
+Don't let another day pass feeling held back by your English skills. [Contact me](#contact) now for your free consultation, and let's create a plan to achieve the English fluency you've always wanted.
