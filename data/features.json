@@ -1,17 +1,17 @@
 [
   {
     "title": "Free Consultation",
-    "description": "New clients recieve an obligation free consultation.",
+    "description": "Start with a free consultation to assess your needs and goals.",
     "image": "images/features/noun_branding_1885335.svg"
   },
   {
-    "title": "Certified Accountants",
-    "description": "All members of our team are certified accountants.",
+    "title": "Native English Speaker",
+    "description": "Learn from a native English speaker from England for authentic language mastery.",
     "image": "images/features/noun_The Process_1885341.svg"
   },
   {
-    "title": "Tax Compliance",
-    "description": "We stay up to date on the latest changes to the tax code.",
+    "title": "Personalized Learning",
+    "description": "Custom lesson plans tailored to your specific needs and goals.",
     "image": "images/features/noun_3d modeling_1885342.svg"
   }
 ]
