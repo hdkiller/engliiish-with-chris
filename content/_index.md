@@ -10,30 +10,28 @@ intro_image_hide_on_mobile: true
 
 # Break Free from English Language Barriers
 
-Are you feeling stuck, unable to express yourself confidently in English? Whether you're missing out on career opportunities, struggling to connect with international colleagues, or dreaming of studying abroad, you're not alone. Many people feel frustrated when their English skills hold them back from achieving their goals. But there's a solution.
+Are you feeling held back by your English skills? Whether you’re struggling in business meetings, preparing for IELTS, or just want to communicate confidently in everyday situations, you’re not alone. Many learners feel frustrated when their English skills don’t match their potential. But there’s good news—with the right guidance, you can overcome these challenges and achieve your goals.
+
+## Achieve Your English Goals with Expert Online Lessons
+
+Looking to improve your English for work, exams, or daily communication? With 30 years of experience as a teacher, trainer, and examiner, I provide engaging, personalized lessons that help you gain confidence and fluency—fast! Whether you need IELTS preparation, Cambridge exam training, Business English, or conversation practice, I’ll guide you with effective strategies, expert feedback, and a supportive learning environment.
 
 ## Your Path to English Mastery
 
-Imagine confidently leading meetings in English, easily making friends from around the world, or acing that crucial exam. As a qualified English teacher from England now based in Budapest, I'll guide you through a proven learning journey that transforms your English abilities and opens new doors of opportunity.
+Imagine confidently expressing yourself in any situation—from casual conversations to professional presentations. As a native English speaker, I’ll guide you through a structured learning journey that transforms your abilities and opens new opportunities.
 
-## Why Choose My English Lessons?
 
-I understand the challenges you face, and I'm here to help you overcome them:
+## Why Choose My Approach?
 
-* **Native Speaker Expertise:** Learn natural English from someone who lives and breathes the language
-* **Personalized Learning Journey:** Get a custom plan that targets your specific goals and challenges
-* **Flexible Learning Options:** Choose online or in-person lessons that fit your busy schedule
-* **Proven Success System:** Benefit from teaching methods that have helped countless students succeed
-* **Supportive Environment:** Build confidence in a comfortable setting where mistakes are learning opportunities
+My comprehensive approach ensures success:
+- Natural Pronunciation and Accent: Speak with authentic native pronunciation and improve your fluency.
+- Cultural Understanding: Master the subtle nuances that make English sound natural.
+- Real-World Application: Learn English that’s actually used in daily life, not just from textbooks.
+- Personalized Learning: Get one-on-one lessons tailored to your specific needs and goals.
+- Flexible Options: Choose between online or in-person lessons in Budapest to fit your schedule.
+- Proven Results: Benefit from teaching methods that have helped countless students succeed.
 
-## Your Success Story Starts Here
-
-Whether you need:
-- Business English to advance your career
-- IELTS preparation to study abroad
-- Conversation practice to boost your confidence
-- General English to improve overall
 
 I'm here to guide you every step of the way with proven strategies that get results.
 
-Don't let language barriers hold you back any longer. [Book Your Free Consultation](#contact) today and take the first step toward English fluency.
+Don't let language barriers hold you back any longer. [Book Your Free Consultation](/contact) today and take the first step toward English fluency.
