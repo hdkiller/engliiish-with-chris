@@ -11,7 +11,7 @@ With 30 years of experience, I’ve taught thousands of students, trained teache
 
 Have you worked with English teachers who couldn't help you achieve the breakthrough you needed? Many students spend years studying English without seeing real progress. The problem often isn't you - it's the approach. As a native English speaker from England now based in Budapest, I offer a different path to English fluency.
 
-![Chris White - English Teacher](/images/team/default.png)
+![Chris White - English Teacher](/images/team/chris.jpg)
 
 ## Your Partner in English Success
 
